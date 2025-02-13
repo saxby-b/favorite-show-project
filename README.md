@@ -1,1 +1,1 @@
-Add all your favorite shows to one list!
+Make a list of your favorite shows.
